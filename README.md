@@ -1,4 +1,4 @@
 # Separated-Pekora-2017-Android-Clients
 Install Pekora Without Uninstall Roblox!
 
-FOR HELP PLEASE CHAT ME ON PEKORA DISCORD SERVER
+This Project ha been discontinued to update because pekora was rat and i quit on pekora now
